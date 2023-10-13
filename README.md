@@ -6,7 +6,9 @@ well i am luci, you can call me panni too
 
 i like jojos, omori, etc i am lazy to say more but that's the basic my fav characters are fugo and basil :P
 
-If I don't answer the messages it's because I'm very embarrassed and it's hard for me.
+If I don't answer the messages it's because I'm very embarrassed and it's hard for me
+
+*english is not my first language so sorry if i make mistakes*
 
 ***i am not goin to give any other of my accounts so***
 
