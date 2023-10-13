@@ -2,6 +2,8 @@
 
 idk why i did this account i just did it for pony town LOL
 
+normally i am in a pony of aubrey :P
+
 well i am luci, you can call me panni too
 
 i like jojos, omori, etc i am lazy to say more but that's the basic my fav characters are fugo and basil :P
@@ -15,6 +17,8 @@ If I don't answer the messages it's because I'm very embarrassed and it's hard f
 **ESPAÑOL**
 
 no se porque hice esta cuenta solo la hice por el pony town LOL
+
+normalmente estoy en un pony de aubrey :P
 
 bueno soy luci, me puedes llamar panni tambien
 
